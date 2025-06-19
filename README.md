@@ -25,5 +25,5 @@
  Thank you for reviewing my submission!
 
 ## 📬 Contact
-- <a href=(www.linkedin.com/in/rohit-gupta21-8951axbih)>[Rohit Gupta ]</a>(LinkedIn)
+- <a>[Rohit Gupta ](https://www.linkedin.com/in/rohit-gupta21-8951axbih/)(LinkedIn)</a>
 - Email: rohitgupta8951@gmail.com
