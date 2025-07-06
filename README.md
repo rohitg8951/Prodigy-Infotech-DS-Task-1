@@ -36,5 +36,5 @@ To explore, understand, and analyze the structure and trends in the given popula
 
 
 ## 📬 Contact
-- <a>[Rohit Gupta ](https://www.linkedin.com/in/rohit-gupta21-8951axbih/)(LinkedIn)</a>
+- <a>[Rohit Gupta ](https://www.linkedin.com/in/rohit-gupta8951/)(LinkedIn)</a>
 - Email: rohitgupta8951@gmail.com
